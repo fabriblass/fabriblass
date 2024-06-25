@@ -1,4 +1,4 @@
-- 👋 Q ONDAAA SOY @fabriblass
+- 👋 Holaaa soy @fabriblass
 - 👀 Estoy interesado en aprender programacion
 - 🌱 Ahora mismo estoy por empezar aprender programacion
 - 💞️ Tambien estoy buscando trabajo :):):)
