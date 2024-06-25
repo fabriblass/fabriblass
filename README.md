@@ -3,7 +3,7 @@
 - 🌱 Ahora mismo estoy por empezar aprender programacion
 - 💞️ Tambien estoy buscando trabajo :):):)
 - 📫 Podes llegar a mi por mi Instagram que es: @Fabriblass
-- 😄 Mi pronombre es blas
+- 😄 Mi pronombre es: blass
 - ⚡ Me encanta divertirme y mas si es sobre el futbol
 
 <!---
